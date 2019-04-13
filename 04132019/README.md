@@ -12,7 +12,7 @@ Building on the previous example,
 4. I left the store. 
 5. The bee had become stuck in the gum. 
 
-The world is a little simpler now, knowing that those two things have become stuck together like that.  
+The world is a little simpler now, knowing that those two things have become stuck together like that. It goes on and on like that. 
 
 Energy is the universe's currency, and I don't mean energy in the mystical kind of way. I mean it in the most empirical manner possible. Although it may be hard to detect, measure and adequately store and use, it surrounds us everywhere and existence itself is not possible without it. All of life is the exchanging of this currency. With your actions you invest your currency, likely intending to purchase the things you value above all else. In a world that limits possibilities investments in avenue opening possibilities is prudent. If such things are not possible or available, then simply waiting for the universe to present a desirable opportunity is the next best thing. Never feel compelled to walk an avenue you do not explicitly desire, to do so is to act as an advocate of theft.  
 
