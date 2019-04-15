@@ -25,7 +25,12 @@ I cross a street. It causes me to recall the pretty obsessive crush I had. She w
 Making the turn, I fondle the Swiss Army Knife in my pocket. I walk past the old building I worked in. Along this street the seasons were poignant. It's cold tonight. I've been homeless for almost seven months now. Not by my own choosing, but because my soul has been caged. “they” say it's because I'm punishing myself. I call it bullshit psychology. I think that “they “ are pulling a fast one. I also think that “they “ are projecting. Realizing these things makes my soul ache, and so my mind aches, and thusly : I ache. I don't try to hide the pain anymore. I yell at the air. I know they're always watching. “give them a good show “ I retort - my soul cries “betrayal of self”. “Principles, “ rings my ego, “they must be destroyed.“ Calm. I have an angry soul, I conclude. “Rightfully so,” I voice. 
 Another set of signage : “Make an impact,” - a blinking stop sign - emergency. 
 
-As I close my circuit, I force myself to examine a piece of art sitting in front of a cafeteria. There is no sign or placard indicating the intentions of the artist, and so I let it be whatever I want it to be. Analytically speaking, it's three pieces of metal rising up from the ground, each lined with a unique secondary colored lighting - magenta, cyan and yellow. It is her, I conclude. Then, for a moment I wonder if there is a complementary, primary colored version somewhere else on campus. Maybe it hasn't been built yet. Then, I wonder if it ever will be. 
+As I close my circuit, I force myself to examine a piece of art sitting in front of a cafeteria. There is no sign or placard indicating the intentions of the artist, and so I let it be whatever I want it to be. Analytically speaking, it's three pieces of metal rising up from the ground, each lined with a unique secondary colored lighting - magenta, cyan and yellow. It is her, I conclude. Then, for a moment I wonder if there is a complementary, primary colored version somewhere else on campus. Maybe it hasn't been built yet. Then, I wonder if it ever will be.
+
+Bliss N Eso - Reflections 
+https://music.youtube.com/watch?v=QRzPrtRtkzs&feature=share
+
+
 
 
 
